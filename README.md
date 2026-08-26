@@ -5,7 +5,7 @@
 
 - 🎯 Currently building end-to-end Odoo ERP implementation projects (Sales, Purchase, Inventory, Accounting)
 - 💼 Commerce (English Section) graduate transitioning into ERP consulting
-- 📫 How to reach me: **iamghonim@proton.me &nbsp;~&nbsp; +201017633255**
+- 📫 How to reach me: **iamghonim@zohomail.com &nbsp;~&nbsp; +201017633255**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
